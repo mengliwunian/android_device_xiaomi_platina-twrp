@@ -22,7 +22,7 @@ Xiaomi Mi MI 8 Lite was announced and released in Sep 2018.
 
 ## Device picture
 
-![Xiaomi Mi 8 Lite ](https://img.pconline.com.cn/images/product/1122088/20189/19/15373602009534540_800.jpg)
+![Xiaomi Mi 8 Lite ](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1543643214959&di=3b0c81b537ff2e742079764e8cf1aead&imgtype=0&src=http%3A%2F%2Fask-fd.zol-img.com.cn%2Fg5%2FM00%2F01%2F07%2FChMkJlv2fVaIcCdUAAA_3fbzsx8AAtT_wBUBrgAAD_1288.jpg)
 
 ## Features
 
